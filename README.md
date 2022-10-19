@@ -1,0 +1,1 @@
+# AVALIACAO-3-TRI-1D
